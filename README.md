@@ -27,5 +27,5 @@ please read this!
 ࣪ ִֶָ☾. i have dyslexia so i might spell things wrong from time to time, feel free to correct me if i make a spelling mistake and don't notice. ִֶָ☾. 
 
 - --------------------------------------------------------------------------------------------------
-• safe-space for systems, people with pd's, neurodivergent (adhd, add, dyslexia, etc.), lgbtqa+, furries, therians ect. i'm very understanding and supportive. <3  
+• safe-space for systems, neurodivergent (adhd, add, dyslexia, etc.), lgbtqa+, furries, therians ect. i'm very understanding and supportive. <3  
 
