@@ -18,7 +18,7 @@ please read this!
 
 ࣪ ִֶָ☾. ࣪I block/hide freely/if i'm uncomfortable with an interaction. ִֶָ☾. 
 
-࣪ ִֶָ☾. ࣪Don't expect me to respond to everything, i'm really shy and socially awkward and anxious sometimes so I appreciate when people are patient with me when it comes to me responding and/or whisper chat with me instead. :) ִֶָ☾. 
+࣪ ִֶָ☾. ࣪Don't expect me to respond to everything, if i dont respond, please be patient with me and whisper chat with me instead (i'm more likely to respond with whispers) . :) ִֶָ☾. 
 
 ࣪ ִֶָ☾. ࣪Please don't copy any of my ponies, inspo is genuinely okay but don't full on copy my entire pony please <3 ִֶָ☾. 
 
