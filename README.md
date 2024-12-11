@@ -18,7 +18,7 @@ please read this!
 
 ࣪ ִֶָ☾. ࣪I block/hide freely/if i'm uncomfortable with an interaction. ִֶָ☾. 
 
-࣪ ִֶָ☾. ࣪Don't expect me to respond to everything, i'm really shy and socially awkward and anxious at times so i appreciate when people are patient with me when it comes to me responding or whisper chat with me instead because its more comfortable for me in those moments. :) ִֶָ☾. 
+࣪ ִֶָ☾. ࣪Don't expect me to respond to everything, i'm really shy and socially awkward and anxious sometimes so I appreciate when people are patient with me when it comes to me responding and/or whisper chat with me instead. :) ִֶָ☾. 
 
 ࣪ ִֶָ☾. ࣪Please don't copy any of my ponies, inspo is genuinely okay but don't full on copy my entire pony please <3 ִֶָ☾. 
 
@@ -27,5 +27,5 @@ please read this!
 ࣪ ִֶָ☾. i have dyslexia so i might spell things wrong from time to time, feel free to correct me if i make a spelling mistake and don't notice. ִֶָ☾. 
 
 - --------------------------------------------------------------------------------------------------
-• safe-space for systems, neurodivergent (adhd, add, dyslexia, etc.), lgbtqa+, furries, therians ect. i'm very understanding and supportive. <3  
+•  <3  
 
