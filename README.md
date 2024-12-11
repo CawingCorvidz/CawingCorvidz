@@ -20,7 +20,7 @@ please read this!
 
 ࣪ ִֶָ☾. ࣪Don't expect me to respond to everything, if i dont respond, please be patient with me and whisper chat with me instead (i'm more likely to respond with whispers) . :) ִֶָ☾. 
 
-࣪ ִֶָ☾. ࣪Please don't copy any of my ponies, inspo is genuinely okay but don't full on copy my entire pony please <3 ִֶָ☾. 
+࣪ ִֶָ☾.  inspo is genuinely okay but don't full on copy my entire pony please <3 ִֶָ☾. 
 
 ࣪ ִֶָ☾. Tone tags are highly appreciated <3 ִֶָ☾. 
 
