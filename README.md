@@ -12,7 +12,7 @@ please read this!
 - --------------------------------------------------------------------------------------------------
 ִֶָ☾. Hello, my name is Corvin, but you can call me Eridan or whatever I'm cosplaying on Pony Town in the moment. :) ִֶָ☾. 
 
-࣪ ִֶָ☾. C+H - w2int/whisper to interact if I don't respond - ask B4 adding, i'm uncomfortable with being friends on media (discord,ect.) with anyone below the age of 16. ( on pony town idrc about interactions just no friend requests please if under 16.) ִֶָ☾.
+࣪ ִֶָ☾. C+H - w2int/whisper to interact if I don't respond - ask B4 adding, i'm uncomfortable with being friends on media (discord,ect.) with anyone below the age of 15. ( on pony town idrc about interactions just no friend requests please if under 15.) ִֶָ☾.
 
 ࣪ ִֶָ☾. Feel free to ask me via whisper for my socials (i'm most active on Discord.), i may say no depending on how much we've actually talked in game. ִֶָ☾. 
 
