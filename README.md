@@ -6,6 +6,8 @@ please read this!
 
 -`♡´- sometimes I might be AFK in the game, as sometimes I like to draw while I'm chilling in game! so feel free to whisper to me if i'm AFK. 
 
+-`♡´- PLEASE READ THE CARD THAT IS LINKED TOO PLEASE!!!
+
 (♡ˊ͈ ꒳ ˋ͈) 
 
 ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ 
