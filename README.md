@@ -7,7 +7,7 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 
 -`♡´- sometimes I might be AFK in the game, as sometimes I like to draw while I'm chilling in game! so feel free to whisper to me if i'm AFK. 
 
--`♡´- PLEASE READ THE  PUBLIC CARD THAT IS LINKED TOO PLEASE!!! **(I ALSO HAVE A CARDD FOR MORE PERSONAL THINGS, I WILL ONLY BE GIVING IT OUT TO THOSE I FEEL I CAN TRUST WITH READING IT VIA DISCORD!!!)**
+-`♡´- **I AM ALMOST AN ADULT, PLEASE DON'T ASK FOR MY SOCIALS IF YOU ARE UNDER 16!!**
 
 (♡ˊ͈ ꒳ ˋ͈) Feel free to ask me things about myself if you want to get to know me better !
 
