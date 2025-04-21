@@ -19,9 +19,9 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 
 ࣪ ִֶָ☾. w2int/whisper to interact if I don't respond. i might be AFK or i might not be in a talkative mood and will only feel comfortable to respond verbally through whisper chat ࣪ ִֶָ☾.
 
-࣪ ִֶָ☾. Please tell me your age before giving out socials, i am 17 (18 in a week) and i am uncomfortable with being friends with those under the age of 16. **(On pony town i don't mind being friends with anyone, i just won't want to be close friends with you if you're under 16.)** ִֶָ☾.
+࣪ ִֶָ☾. Please tell me your age before giving out socials, i am 17 (18 in a week) and i am uncomfortable with being friends with those under the age of 16. **(in pony-town i don't mind being friends / interacting with anyone IN GAME just for brief chatting + cosplaying in game, i just don't want to be interacting with you outside of pony town / media other than pony-town if you're under 16.)** ִֶָ☾.
 
-࣪ ִֶָ☾. Feel free to ask me via whisper for my socials (i'm most active on Discord.), i may say no depending on how much we've actually talked in game or depending on age. ִֶָ☾. 
+࣪ ִֶָ☾. Feel free to ask me via whisper for my socials (i'm most active on Discord.), i may say no depending on how much we've actually talked in game **and depending on age**. ִֶָ☾. 
 
 ࣪ ִֶָ☾. ࣪I block/hide freely/if i'm uncomfortable with an interaction. ִֶָ☾. 
 
