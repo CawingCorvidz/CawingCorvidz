@@ -7,7 +7,7 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 
 -`♡´- sometimes I might be AFK in the game, as sometimes I like to draw while I'm chilling in game! so feel free to whisper to me if i'm AFK. 
 
--`♡´- **I AM ALMOST AN ADULT, PLEASE DON'T ASK FOR MY SOCIALS IF YOU ARE UNDER 16!!**
+-`♡´- **I AM 18,  PLEASE DON'T ASK FOR MY SOCIALS IF YOU ARE UNDER 16!!**
 
 (♡ˊ͈ ꒳ ˋ͈) Feel free to ask me things about myself if you want to get to know me better !
 
@@ -19,7 +19,7 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 
 ࣪ ִֶָ☾. w2int/whisper to interact if I don't respond. i might be AFK or i might not be in a talkative mood and will only feel comfortable to respond verbally through whisper chat ࣪ ִֶָ☾.
 
-࣪ ִֶָ☾. Please tell me your age before giving out socials, i am 17 (18 in a week) and i am uncomfortable with being friends with those under the age of 16. **(in pony-town i don't mind being friends / interacting with anyone IN GAME just for brief chatting + cosplaying in game, i just don't want to be interacting with you outside of pony town / media other than pony-town if you're under 16.)** ִֶָ☾.
+࣪ ִֶָ☾. Please tell me your age before giving out socials, i am 18 and i am uncomfortable with being friends with those under the age of 16. **(in pony-town i don't mind being friends / interacting with anyone IN GAME just for brief chatting + cosplaying in game, i just don't want to be interacting with you outside of pony town / media other than pony-town if you're under 16.)** ִֶָ☾.
 
 ࣪ ִֶָ☾. Feel free to ask me via whisper for my socials (i'm most active on Discord.), i may say no depending on how much we've actually talked in game **and depending on age**. ִֶָ☾. 
 
