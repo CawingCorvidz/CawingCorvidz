@@ -7,7 +7,7 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 
 -`♡´- sometimes I might be AFK in the game, as sometimes I like to draw while I'm chilling in game! so feel free to whisper to me if i'm AFK. 
 
--`♡´- **I AM AN ADULT (2007!),  PLEASE DON'T ASK FOR MY SOCIALS IF YOU ARE UNDER 15!!**
+-`♡´- **I AM AN ADULT (2007!),  PLEASE DON'T ASK FOR MY SOCIALS IF YOU ARE UNDER 15 or over 30!!** (though, i only wish to become friends with people who are born in the years 2001-2009, if otherwise please know i do not want to be close-friends (even just non-close-friends is pushing it a bit.) and will only view you as either a non-close-friend or an acquaintance depending on your age !)
 
 (♡ˊ͈ ꒳ ˋ͈) Feel free to ask me things about myself if you want to get to know me better !
 
@@ -19,7 +19,7 @@ VVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVVV
 
 ࣪ ִֶָ☾. w2int/whisper to interact if I don't respond. i might be AFK or i might not be in a talkative mood and will only feel comfortable to respond verbally through whisper chat ࣪ ִֶָ☾.
 
-࣪ ִֶָ☾. Please tell me your age before giving out socials, i am an adult and i am uncomfortable with being friends with those under the age of 15. **(in pony-town i don't mind being friends / interacting with anyone IN GAME just for brief chatting + cosplaying in game, i just don't want to be interacting with you outside of pony town / media other than pony-town if you're under 15.)** ִֶָ☾.
+࣪ ִֶָ☾. Please tell me your age before giving out socials, i am an adult and as stated before i am uncomfortable with exchanging socials with anyone who isnt 1996-2011 (highly prefered range for making friends is 2009-2001 though). **(in pony-town i don't mind being friends / interacting with anyone IN GAME just for brief chatting + cosplaying in game, i just don't want to be interacting with you outside of pony town / media other than pony-town if you're not born in 1996-2011.)** ִֶָ☾.
 
 ࣪ ִֶָ☾. Feel free to ask me via whisper for my socials (i'm most active on Discord.), i may say no depending on how much we've actually talked in game **and depending on age**. ִֶָ☾. 
 
